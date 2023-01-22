@@ -1,3 +1,4 @@
 GUILHERME  
 
-f asso  programacao  e quero estuda
+fasso programacao e quero estudar
+outras arias de ti, quero fazer ingles 
