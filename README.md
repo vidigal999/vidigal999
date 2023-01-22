@@ -7,4 +7,4 @@ quero fazer ingles
  
  fiz um pouco de design, trabalhei com figma e canva 
  
- atualmente estou estudando 
+ 
